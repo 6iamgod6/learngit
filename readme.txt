@@ -1,1 +1,1 @@
-i am a very good god.
+i am a very good and awesome god.
